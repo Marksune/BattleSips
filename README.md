@@ -1,4 +1,4 @@
 BattleSips – Battles Meets Beers! 🍺💥
-To hold mod hinanden i Teams, eller ét hold mod computeren i Campaign – placer dine skibe, skyd, og tag en slurk, når du rammer vandet! 💦
-Pas på Chug Mines – ram en, og du tager en bunder! 💣🥂
-Strategi, held og øl-kaos – klar til kamp? 🏴‍☠️
+To hold mod hinanden i Versus, eller ét hold mod computeren i Campaign – placer dine skibe, skyd, og DRIK, når du rammer vandet! 💦
+Pas på Holy Chug Mines – ram en, og increment dine total sips med 14 på tid! 💣🥂
+Strategi, held og øl – klar til kamp? 🏴‍☠️
